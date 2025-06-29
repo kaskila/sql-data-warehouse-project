@@ -103,4 +103,4 @@ As a passionate data professional, I created this project to demonstrate my capa
 ---
 
 Feel free to explore, learn, and connect with me!
-🔗 \[LinkedIn Profile] | 📩 \[Email Me] | 🌍 \[Portfolio Website if available]
+🔗 \[LinkedIn https://www.linkedin.com/in/kasikila-isaac/Profile] | 📩 \kasikilaisaac24@gmail.com |
